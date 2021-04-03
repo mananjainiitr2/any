@@ -1,1 +1,1 @@
-yoo mana
+yoo manan
